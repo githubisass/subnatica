@@ -1,2 +1,3 @@
-# subnatica
-mfocds
+THIS IS A FCSTUDIOS MOD THE JULY BETA
+DONT TELL THE OWNERS ABOUT THIS
+need help? message whitecane on discord!
